@@ -30,7 +30,7 @@ If you have any questions, suggestions, or feedback, feel free to reach out to u
 
 - **Email:** contact.chahar@gmail.com 📧
 - **LinkedIn:** www.linkedin.com/in/imsurajchahar 💼
-- **Instagram:** suuraaaaj 📷
+- **Instagram:** soorajbutwithu 📷
 
 Join the Typing Practice community and embark on a journey to improve your typing skills! 💪
 
